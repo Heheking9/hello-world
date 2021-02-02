@@ -1,2 +1,5 @@
 # hello-world
 first new repository
+I AM CLOSED TO 21.
+I WANT TO LEARN SOME SKILLS.
+I WANT TO MAKE SOME MONEY AND BUY A NEW PIANO.
